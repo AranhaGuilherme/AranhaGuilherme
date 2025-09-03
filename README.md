@@ -1,4 +1,4 @@
-## Guilherme Aranha 👋😎
+## Guilherme Aranha Silva 👋😎
 
  <div>
    <a href="https://github.com/AranhaGuilherme">
